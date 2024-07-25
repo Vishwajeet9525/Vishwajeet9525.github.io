@@ -1,5 +1,4 @@
 # vishwajeet9525.github.lo
-# vishwajeet Kumar 
 # profile:- vishwajeet Kumar 
 # personal information:-
 # Age:- 17yrs
